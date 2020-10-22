@@ -8,3 +8,6 @@
 **Email:** critikk99@bk.ru
 
 **Marital status:** Single
+### EDUCATION AND QUALIFICATION
+**Bachelor** Sep 2017 - Jul 2021
+Ukhta State Technical University, Ukhta
